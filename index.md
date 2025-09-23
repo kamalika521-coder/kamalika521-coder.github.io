@@ -1,5 +1,3 @@
-Welcome to My Portfolio
-
 Hello,
 I am Kamalika K C, a BBA LL.B. (Hons.) 4th Year student at SASTRA University, Thanjavur, passionate about serving justice and help people.
 
